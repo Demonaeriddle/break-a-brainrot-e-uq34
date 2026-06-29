@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg Scripts exclusive is the best break a brainrot egg Script, featuring custom skins and auto-farm. Safe and powerful for all your
 
 
 
